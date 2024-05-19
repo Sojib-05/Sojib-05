@@ -24,7 +24,7 @@ Skills: C / C++ / Java / PYTHON/ BOOTSTRAP / REACT / JS / HTML / CSS
 
 - 📫 How to reach me **programmersojib05@gmail.com**
 
-- 📄 All About Me:[https://lnk.bio/tutul181](https://lnk.bio/tutul181)
+- 📄 All About Me:[https://lnk.bio/sojib-05](https://lnk.bio/sojib-05)
 
 <h3 align="left">Connect with me:</h3>
 
